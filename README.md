@@ -1,2 +1,0 @@
-# anandhandhine.github.io
-portfolio
